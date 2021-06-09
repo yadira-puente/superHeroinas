@@ -1,0 +1,1 @@
+Fue una cinetifica estadounidense y contraalmirante de la Armada de los Estados Unidos. Una de las primeras programadoras de la computadora Harvard MArk, fue una pionera de la programaciòn informàtica
